@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @nikitosikperdosik
+- 👀 I’m interested in kokashka
+- 🌱 I’m currently learning piska
+- 💞️ I’m looking to collaborate on jopa
+- 📫 How to reach me soski
+- 😄 Pronouns: baraban
+- ⚡ Fun fact: vitalevych
